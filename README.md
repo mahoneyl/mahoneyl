@@ -1,3 +1,3 @@
 # Logan Mahoney
 ### Application Developer
-#### mahoney.lgn@gmail.com
+#### Ljbushmaho42@students.tntech.edu
